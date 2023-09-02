@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Nanay
+- 👀 I’m interested in playing with others.
+- 🌱 I’m currently learning how to play minecraft.
+- 💞️ I’m looking to collaborate on playing minecraft.
+- 📫 How to reach me randompeople795@gmail.com OR Snap:@amy_landero2013
